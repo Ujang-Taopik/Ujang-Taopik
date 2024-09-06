@@ -1,5 +1,3 @@
-Tentu, berikut adalah contoh pengisian teks tersebut berdasarkan minat kamu di bidang manufaktur dan energi terbarukan:
-
 - 👋 Hai, saya @Ujang-Taopik
 - 👀 Saya tertarik pada manufaktur, energi terbarukan, dan teknologi otomasi.
 - 🌱 Saat ini saya sedang belajar tentang sistem otomasi industri, pengembangan perangkat lunak untuk kontrol kualitas, dan inovasi dalam energi terbarukan.
